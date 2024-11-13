@@ -1,1 +1,0 @@
-# Criando-sua-Aventura---Arthur-Gabriel-1-C
